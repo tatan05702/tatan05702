@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Mi nombre es juan Sebastian Agredo Silva 🔭
+
+Tengo 16 Años ✨
+
+Me gusta el futbol y el derecho 😄
