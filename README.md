@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola a todos 👋
 
 <!--
 **tatan05702/tatan05702** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -18,4 +18,6 @@ Mi nombre es juan Sebastian Agredo Silva 🔭
 
 Tengo 16 Años ✨
 
-Me gusta el futbol y el derecho 😄
+Me gusta el futbol y me gustaria estudiar derecho, me gusta mucho el tema de las leyes y mi meta es llegar a ser juez. 😄
+
+Me gusta viajar, conocer paises y aprender sobre las diferentes culturas.
