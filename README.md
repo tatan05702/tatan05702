@@ -20,4 +20,4 @@ Tengo 16 Años ✨
 
 Me gusta el futbol y me gustaria estudiar derecho, me gusta mucho el tema de las leyes y mi meta es llegar a ser juez. 😄
 
-Me gusta viajar, conocer paises y aprender sobre las diferentes culturas.
+Me gusta viajar, conocer paises y aprender sobre las diferentes culturas.	:mage:
